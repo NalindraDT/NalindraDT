@@ -8,7 +8,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on: anything that i capable of
 - 🤔 I’m looking for help with: token
 - 💬 Ask me about: food
-- 📫 How to reach me: 
-- 😄 Pronouns: he/him
-- ⚡ Fun fact: vegan is gay
+- 📫 How to reach me: email me at nalindradt@gmail.com
   
